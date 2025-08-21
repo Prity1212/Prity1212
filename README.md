@@ -7,8 +7,9 @@
 
 - 📫 How to reach me **kumariprity12199@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/19rZ2iwJy7XkwwV-gBWeOkmW8a7144Z0EbfjsCDD1gz8/edit?usp=sharing](https://docs.google.com/document/d/19rZ2iwJy7XkwwV-gBWeOkmW8a7144Z0EbfjsCDD1gz8/edit?usp=sharing)
+- 📄 Know about my experiences [[https://docs.google.com/document/d/19rZ2iwJy7XkwwV-gBWeOkmW8a7144Z0EbfjsCDD1gz8/edit?usp=sharing](https://docs.google.com/document/d/1KSIhbbAyy5aolT3jU863mFlhW1tHR3pJ8umzEZxz7lc/edit?usp=sharing)]
 
+https://docs.google.com/document/d/1KSIhbbAyy5aolT3jU863mFlhW1tHR3pJ8umzEZxz7lc/edit?usp=sharing
 - ⚡ Fun fact **I think i am sarcastically dumb with good humor**
 
 <h3 align="left">Connect with me:</h3>
